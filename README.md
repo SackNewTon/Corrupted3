@@ -1,4 +1,4 @@
-(https://github.com/SackNewTon/Corrupted3/assets/124702773/70f77f23-9f5e-47b5-9ac9-ebd8e858a82a)
+[corrupted](https://github.com/SackNewTon/Corrupted3/assets/124702773/70f77f23-9f5e-47b5-9ac9-ebd8e858a82a)
 
 # Corrupted3 Made By AI!
 
